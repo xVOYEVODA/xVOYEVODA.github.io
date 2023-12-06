@@ -1,4 +1,4 @@
 # xVOYEVODA.github.io
-## How are you?
+## Here is the Truth
 
-Good.
+I have no idea what the fuck I am doing. Not just here on Github, but with life itself. 
